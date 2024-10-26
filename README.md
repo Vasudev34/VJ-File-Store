@@ -87,7 +87,7 @@
 
 <b><details><summary>Tap On Me For See Credit</summary>
 
-💝 Credit Goes To [Tech VJ](Iceageneration)
+💝 Credit Goes To [Anime Town](Iceageneration)
 
 🖍️ This Code Is Fully Written Or Coded And Public By [Iceageneration](https://telegram.me/Iceageneration) So Don't Forgot To Give Credit
 
